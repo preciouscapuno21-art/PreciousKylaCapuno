@@ -6,7 +6,7 @@ I am **Precious Kyla D. Capuno**, with a flair for coding and database managemen
 ## 🎓 Education
 ### Bachelor of Science in Information Technology  
 📍 New Era University  
-📅 2021 – Present  
+📅 2024 – Present  
 
 ---
 
